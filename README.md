@@ -11,7 +11,10 @@ Isso torna a pergunta ainda mais crucial e urgente. A resposta, no entanto, vem 
 Sessenta e tantos anos atrás, alguns estudantes de medicina na Polônia, na Hungria e naChecoslováquia começaram a notar que havia algo de muito estranho no ar. Eles haviamlutado na resistência antinazista junto com seus colegas, e isto havia consolidado laços deamizade e solidariedade que, esperavam, durariam para sempre. Aos poucos, após ainstauração do regime comunista, novos professores e funcionários, enviados pelosgovernantes, estavam alterando profundamente o ambiente moral nas universidades daquelespaíses. Um jovem psiquiatra escreveu:
 
 ```
-    (…) sentíamos que algo estranho tinha invadido nossas mentes e algo valioso estava se esvaindo de forma irreparável.O mundo da realidade psicológica e dos valores morais parecia suspenso em um nevoeiro gelado. Nosso sentimentohumano e nossa solidariedade estudantil perderam seus significados, como também aconteceu com o patriotismo e nossosvelhos critérios estabelecidos. Então, nos perguntamos uns aos outros, “isso está acontecendo com você também?”.
+    (…) sentíamos que algo estranho tinha invadido nossas mentes e algo valioso estava se esvaindo de forma irreparável.
+    O mundo da realidade psicológica e dos valores morais parecia suspenso em um nevoeiro gelado. 
+    Nosso sentimentohumano e nossa solidariedade estudantil perderam seus significados, como também aconteceu com o patriotismo e nossosvelhos critérios estabelecidos. 
+    Então, nos perguntamos uns aos outros, “isso está acontecendo com você também?”.
 ```
 
 Impossibilitados de reagir, eles começaram a trocar idéias, perguntando como poderiam sedefender da devastação psicológica geral. Aos poucos essas conversações evoluíram para oplano de um estudo psiquiátrico da elite dirigente comunista e da sua influência psíquica sobrea população.
