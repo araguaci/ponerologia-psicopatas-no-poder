@@ -40,3 +40,5 @@ Mas o que o dr. Lobaczewski e seus colaboradores descobriram foi muito além des
 - Terceiro: descobriramque isso acontece não porque a psicopatia seja contagiosa, mas porque aquelas mentes menosativas que, meio às tontas, vão se adaptando às novas regras e valores, se tornam presas deuma sintomatologia claramente histérica, ou histeriforme. O histérico não diz o que sente, maspassa a sentir aquilo que disse – e, na medida em que aquilo que disse é a cópia de fórmulasprontas espalhadas na atmosfera como gases onipresentes, qualquer empenho de chamá-lo devolta às suas percepções reais abala de tal modo a sua segurança psicológica emprestada, queacaba sendo recebido como uma ameaça, uma agressão, um insulto.
 
 **É assim que um grupo relativamente pequeno de líderes psicopáticos destrói a alma de uma nação.** 
+
+https://ponerologia-psicopatas-no-poder.vercel.app/
